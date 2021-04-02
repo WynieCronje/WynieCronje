@@ -4,7 +4,7 @@ My passion for Information Technology was discovered during my high school caree
 
 The first website I developed happened a year later when I worked on a personal project for a family member who started breeding chihuahuas. That same year, it won the K9 website of the year award and this gave me the confidence and assurance that I was entering into the right field.
 
-I then registered with a hosting company and through word of mouth, my network grew to 12 clients by the final year of secondary school.
+I then registered with a hosting company and through word of mouth, my network grew to 10 clients by the final year of secondary school.
 
 In 2011, one of these clients approached me with a job opportunity that involved working on a three-month project at iOCO (formerly Airborne). This is where my journey with the company started.
 
